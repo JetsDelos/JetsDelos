@@ -1,4 +1,4 @@
-- Has a small game hosting business (JCHOST): https://discord.gg/Aup5ndKaBG
+- Has a small game hosting business (JCHOST): https://discord.gg/6nVHr5C8Xk
 - Message me on discord: wiseasnewton
 
 <!---
